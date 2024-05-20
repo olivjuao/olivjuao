@@ -12,4 +12,4 @@ Meu nome é João Pedro
 
 @olivjuao
 
-![](https://media1.tenor.com/m/qeXJ9RsuxkIAAAAC/kpop-girl-group.gif)
+![](https://media1.tenor.com/m/gro9I9EXWCUAAAAC/aespa-supernova.gif)
