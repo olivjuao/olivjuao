@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/0727f380-7862-4913-a836-f1060dbb572e)### Boas vindas ao meu perfil 🤍
+### Boas vindas ao meu perfil 🤍
 
 Meu nome é João Pedro
 
