@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 🤍
+![image](https://github.com/user-attachments/assets/0727f380-7862-4913-a836-f1060dbb572e)### Boas vindas ao meu perfil 🤍
 
 Meu nome é João Pedro
 
@@ -12,4 +12,4 @@ Meu nome é João Pedro
 
 @olivjuao
 
-![](https://media1.tenor.com/m/gro9I9EXWCUAAAAC/aespa-supernova.gif)
+![](https://media1.tenor.com/m/eilishfluids-guess-billie-eilish-gif-52931091372019309)
